@@ -1,5 +1,5 @@
 # Welcome to my portfolio! 
-[About Me](##about-me)
+[Education](#education)
 
 
 ## About Me
