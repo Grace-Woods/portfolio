@@ -1,7 +1,7 @@
-# portfolio
+# Welcome to my portfolio! 
 
 ### Education 
-BS in Business Administration, Business Information and Analytics
+Bachelor of Science Business Administration - Business Information and Analytics, June 2027
 
 ### Work Experience
 
