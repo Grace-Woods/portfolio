@@ -12,7 +12,9 @@ In this role, I furthered my communication, collaboration, and problem-solving s
 
 ### Finance Intern
 #### LocaeRise Match, September - December 2025
-While studying abroad in London last fall, I had the unique opportunity to also complete an internship while there. In my internship with LocaeRise Match, an ecommerce company that helps provide financial opportunities to underfunded schools throughout the United Kingdom, I worked with the finance team to help secure funding. We attained 
+While studying abroad in London last fall, I had the unique opportunity to also complete an internship while there. In my internship with LocaeRise Match, an ecommerce company that helps provide financial opportunities to underfunded schools throughout the United Kingdom, I worked with the finance team to help secure funding. To do this, I contacted previous and potential new investors through HubSpot, created and improved slide decks for grant pitches, and supported the other team members as needed.
+
+
 
 ## Community Involvement  
 
